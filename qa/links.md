@@ -5,7 +5,7 @@ title: Links
 
 [/Direct](https://www2-vd.younow.com/)
 
-[Live Profile](https://www2-vd.younow.com/QA1qwwwwwwwwwwwwwwwwwwwww)
+[Live User](https://www2-vd.younow.com/QA1qwwwwwwwwwwwwwwwwwwwww)
 
 [Live Broadcast](https://www2-vd.younow.com/YounowIsrael/6034571/139/y4PbGRv/b)
 
